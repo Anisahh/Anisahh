@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anisahh
-- 👀 I’m interested in Adit
+- 👀 I’m interested in song joong-ki
 - 🌱 I’m currently learning HTML and CSS
 - 📫 How to reach me ig: caichaa.12
 
